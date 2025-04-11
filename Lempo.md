@@ -1,0 +1,1 @@
+_Lĕm'pō_. The Evil Principle; same as Hisi, Piru, and Jutas.

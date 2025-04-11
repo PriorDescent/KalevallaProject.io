@@ -1,0 +1,6 @@
+- Downloaded Obsidian
+- Uploaded Kalevala document as well as some supporting resources
+- Began to annotate by creating a character page for Vainamoinen. 
+	- One issue I have run into is the text version spells Vainamonen as Wainamonen. Although not incorrect given the Finnish dialect, the majority of texts including the paper copy of The Kalevala I own spell it with a "V"
+	- Should I change the W to V?
+	- Research possible program for easy replacement

@@ -1,0 +1,1 @@
+**Karjala** (or Karelia) is a significant geographical and cultural region. It is depicted as the homeland of many of the epic's heroes, including Väinämöinen, Ilmarinen, and Lemminkäinen. Karelia represents the land of the Finns, often contrasted with **Pohjola**, the dark and mystical northern land ruled by the powerful witch Louhi.

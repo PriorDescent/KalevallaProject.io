@@ -1,0 +1,9 @@
+- After dissecting the first "Rune" or chapter of the Kalevala, I have realized that the scope of this project is much larger then I first anticipated. 
+- I have decided to focus instead of on all 49 Runes, on 6 very important Runes. 
+	- I would like to focus on Runes 31-36 which is typically referred to as "The Kullervo Cycle".
+	- The Kullervo Cycle is a 6 Chapter 'envelope' story following the birth and death of a man named "Kullervo". I call it an 'envelope' story, because even though this story lands in the middle of the entire epic, nothing that comes before or after effects the story. In other words, it is kind of a stand alone narrative in the middle of the epic. 
+	- I have learned recently that J.R.R. Tolkien rewrote the Kullervo Cycle in prose in his own version and published it, entitled "The Story of Kullervo" .
+		- Look into purchasing this book
+		- Could be used as a great resource to help fill in the gaps within the poem.
+			- Again, leading to accessibility and comprehensibility. 
+			- Having multiple sources to confirm my interpretation of the text

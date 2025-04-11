@@ -1,0 +1,4 @@
+- Completed Rune XXXI 
+	- First of the Kullervo runes
+	- Had difficulty changing certain link names
+		- need to look into HTML

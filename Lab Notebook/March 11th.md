@@ -1,0 +1,3 @@
+- Struggling with organization
+- Broke up information pages into Locations & Characters
+- Discovered the "Pulter" Project which does a similar thing with Pulter's renisance poems; increasing accesibility. 

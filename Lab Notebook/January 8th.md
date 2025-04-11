@@ -1,0 +1,6 @@
+- IStart of final project
+	- "The Kalevalla Project"
+- I have a personal connection to the text but will have to focus on the narrative itself. Could focus on distant reading (Voyant tools)
+- It is a very important text, noted as being the primary inspiration for Tolkien's Middle Earth literary franchise. 
+- Furthermore, the text parrellells alot of ancient mythologies and it would useful to develope connections; however, connections are difficult to make because of the texts confusing layout and long running verses.
+- Character names are often interchanged inorder to fufill the poem's metre in Finnish, furthering confusion around the text.

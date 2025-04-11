@@ -1,0 +1,1 @@
+In Finnish mythology, **Mielikki** is the goddess of the forest, hunting, and wildlife. She is one of the most significant deities connected to nature and is revered for her role in maintaining the health and abundance of the forest.

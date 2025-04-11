@@ -1,0 +1,3 @@
+**Ehstland** (or Eistland) refers to Estonia, the land south of Finland. It is mentioned a few times in passing but does not play a major role in the epic’s narrative. The reference to Ehstland reflects historical and cultural ties between Finns and Estonians, who share linguistic and mythological connections.
+
+In the _Kalevala_, travelers and traders are sometimes said to visit or come from Ehstland, indicating its place as a neighboring region within the broader mythic geography of the poem. However, it is not depicted with the same legendary significance as Karelia or Pohya.
